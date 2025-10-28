@@ -1,4 +1,3 @@
-oh ! hello misery !
 call me hoshie , my prns he/him w2i
 typology inaccurate sli sp9sp4xx fvel .
 
