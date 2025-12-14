@@ -1,6 +1,5 @@
-call me hoshie , my prns he/him w2i
-typology inaccurate sli sp9sp4xx fvel
-
-interact me on pony town if u wanna talk to me or smth else
-
-![mylove](https://files.catbox.moe/d2rfv9.gif) my tg @sp9hoshie
+ㅤ𑣲 𝗁𝗈𝗌𝗁𝗂𝖾 𝗁𝖾𝗌𝗁𝖾 𝗐𝟤𝗂
+ㅤㅤㅤㅤㅤ𝘀𝗹𝗶 𝘀𝗽𝟵𝟰𝟲 𝗳𝘃𝗲𝗹
+ㅤ⊹ 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘮𝘦 𝘰𝘯 𝘱𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘪𝘧 𝘶 𝘸𝘢𝘯𝘯𝘢 𝘵𝘢𝘭𝘬 𝘵𝘰 𝘮𝘦 𝘰𝘳 𝘴𝘮𝘵𝘩 𝘦𝘭𝘴𝘦
+akitoya(https://files.catbox.moe/96mbkb.png)
+![mylove](https://files.catbox.moe/d2rfv9.gif) my telegram ! @sp9hoshie
